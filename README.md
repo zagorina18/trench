@@ -1,4 +1,4 @@
-##! Загорина Надежда, группа ПО(МОУ)-17+) !
+## Загорина Надежда, группа ПО(МОУ)-17+)
 
 You can use the [editor on GitHub](https://github.com/zagorina18/trench/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
