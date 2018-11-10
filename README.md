@@ -4,7 +4,7 @@
 
 ### [Видео с субтитрами](https://www.youtube.com/embed/SfKeZwOHkZU) (ДЗ по теме 4)
 
-
+### [Задание 1](https://docs.google.com/document/d/1eV8qHA_YYVQapytY4ohaH0sF6YmxGI2zvs_VI2my7kk/edit?usp=sharing)
 
 
 
