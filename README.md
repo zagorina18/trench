@@ -8,4 +8,4 @@
 ### Сравнение условий лицензий (Creative Commons) ДЗ по теме 3
 https://vk.com/doc155991452_478758634?hash=7625fd83b9cbd30c2f&dl=63535bebbb786ca123
 
-[Задание 1 ](https://docs.google.com/document/d/1E4y-xRbUpjV21ICYT4yRIoudZY6nKk_uzkDRzJcVg9I/edit?usp=sharing)
+[Сравнение условий лицензий](https://docs.google.com/document/d/1E4y-xRbUpjV21ICYT4yRIoudZY6nKk_uzkDRzJcVg9I/edit?usp=sharing)
