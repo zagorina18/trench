@@ -6,5 +6,5 @@
 
 ### [Задание 1](https://docs.google.com/document/d/1eV8qHA_YYVQapytY4ohaH0sF6YmxGI2zvs_VI2my7kk/edit?usp=sharing)
 
-
+### [Задание 2.1](https://docs.google.com/document/d/1w_GfmbLdF-EEVznS0DcT1Wjy-MYaWdAvQcvJ1kc6L6c/edit?usp=sharing)
 
