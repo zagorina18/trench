@@ -13,4 +13,4 @@
 ### [Задание 4.1](https://docs.google.com/document/d/1UjDMJ-iGpajb-oTjzuoJ8UzeRf8tFNpjOTtHzeLnrbg/edit?usp=sharing)
 ### [Задание 4.2](https://docs.google.com/document/d/17C7x8clbspr6bef5zFfWxwnemiW1dS5rg9bl4Wogi4U/edit?usp=sharing)
 ### [Задание 5.1](https://docs.google.com/document/d/1P9Fca7j4UUNYK9IFfvG9dRcWnDZ_6bluldCGu-FTCek/edit?usp=sharing)
-### [Задание 5.2](https://docs.google.com/presentation/d/1yZuqVZjEbV3zpOxE7RpHqEE1yfKmYu0BtfavoS_3XG0/edit?usp=sharing) (Разработка мультимедийного ресурса в выбранной области знаний)
+### [Задание 5.2](https://docs.google.com/presentation/d/1yZuqVZjEbV3zpOxE7RpHqEE1yfKmYu0BtfavoS_3XG0/edit?usp=sharing)
