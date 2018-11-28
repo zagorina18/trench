@@ -15,4 +15,5 @@
 ### [Задание 5.1](https://docs.google.com/document/d/1P9Fca7j4UUNYK9IFfvG9dRcWnDZ_6bluldCGu-FTCek/edit?usp=sharing)
 ### [Задание 5.2](https://docs.google.com/presentation/d/1yZuqVZjEbV3zpOxE7RpHqEE1yfKmYu0BtfavoS_3XG0/edit?usp=sharing)
 ### [Задание 6](https://docs.google.com/document/d/1VvFJcs5RRs5AwP9FnlAq04snbg4gpVxXg35YZolNTqE/edit?usp=sharing)
+### Задание 8.1
 ![Задание 8.1](https://psv4.userapi.com/c848324/u155991452/docs/d8/3f47505f2495/Snimok.png?extra=wEgjAkdZv9-oxHCoQ_9fCSziaReKIfnajq1LsEyh99FpbqRCcMNvomvOu65dCFhV_BROdgfbkyWroa_uLqoiXBn67gWNXQ43HT3nOgs5E4wINOhtjQsEJZRxtta8UcxwipXx-9AegW1sxm4zLCXyyQ)
