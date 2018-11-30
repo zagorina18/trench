@@ -21,3 +21,8 @@
 ### Задание 8.1 (Участие в онлайн курсе)
 #### Онлайн-курс на платформе [Udemy](https://www.udemy.com/) по изучению [теории музыки](https://www.udemy.com/music-theory-classes/) подойдёт не только тем, кто всерьёз решил освоить азы музыковедения, но и тем, кто хочет поднять навык владения английским. Ведь курс преподаётся именно на этом языке! Мне очень нравится данная онлайн-платформа: доступны курсы от преподавателей по всему миру; в открытом доступе огромное количество бесплатных курсов, которые есть в каждой области знаний; по окончании большинства курсов вы получите сертификат! Если вы хотите получить дополнительное образование, или просто углубить знания в какой-либо области, то обязательно посетите платформу [Udemy](https://www.udemy.com/).
 ![Задание 8.1](https://psv4.userapi.com/c848324/u155991452/docs/d8/3f47505f2495/Snimok.png?extra=wEgjAkdZv9-oxHCoQ_9fCSziaReKIfnajq1LsEyh99FpbqRCcMNvomvOu65dCFhV_BROdgfbkyWroa_uLqoiXBn67gWNXQ43HT3nOgs5E4wINOhtjQsEJZRxtta8UcxwipXx-9AegW1sxm4zLCXyyQ)
+### [Задание 8.2](https://docs.google.com/document/d/1908nBZDn2SAVbdfZlLXg1OOIM1DUUdpDamMOD5EFy_E/edit?usp=sharing)
+### [Задание 9.1](https://vk.com/doc155991452_483095800?hash=c61e0413a04e4a78c7&dl=1833267e6c969ee166)
+### [Задание 9.2](https://docs.google.com/document/d/1Mf36pbwQonacMrwWdm4g5ocMmggGTDlJ6WonelikkvI/edit?usp=sharing)
+### [Задание 11.1](https://docs.google.com/document/d/1iXivRLTlBAR1WKNoEFutu-Kzo2T3HRrlHpPyuS8A9ak/edit?usp=sharing)
+### [Задание 11.2](https://docs.google.com/document/d/1Isz9i-u3jbHdmwAtGzHva77yjMp1Idloq2vv1yjqr7U/edit?usp=sharing)
