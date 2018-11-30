@@ -26,3 +26,5 @@
 ### [Задание 9.2](https://docs.google.com/document/d/1Mf36pbwQonacMrwWdm4g5ocMmggGTDlJ6WonelikkvI/edit?usp=sharing)
 ### [Задание 11.1](https://docs.google.com/document/d/1iXivRLTlBAR1WKNoEFutu-Kzo2T3HRrlHpPyuS8A9ak/edit?usp=sharing)
 ### [Задание 11.2](https://docs.google.com/document/d/1Isz9i-u3jbHdmwAtGzHva77yjMp1Idloq2vv1yjqr7U/edit?usp=sharing)
+## Вариативные задания
+### [Задание В.4.1](https://docs.google.com/document/d/1PhzFqOQVfL4Kb02VtUFh3T2s0-s5P5KiRt_n9cIFSPQ/edit?usp=sharing)
