@@ -28,3 +28,8 @@
 ### [Задание 11.2](https://docs.google.com/document/d/1Isz9i-u3jbHdmwAtGzHva77yjMp1Idloq2vv1yjqr7U/edit?usp=sharing)
 ## Вариативные задания
 ### [Задание В.4.1](https://docs.google.com/document/d/1PhzFqOQVfL4Kb02VtUFh3T2s0-s5P5KiRt_n9cIFSPQ/edit?usp=sharing)
+### [Задание В.5.2](https://docs.google.com/document/d/1ZqxdPlWhL6tNkVVNI8jJogrHcF-cQUf3boJ7AnPHKog/edit?usp=sharing)
+### [Задание В.6.1](https://docs.google.com/document/d/1L2-Z48xYJkj_6A2AdRayjXtZyGDYGWVltRV1lpdWpHs/edit?usp=sharing)
+### [Задание В.8.1](https://docs.google.com/document/d/15AyeIsOuCjsUMybjAze2-ZBkkWXnE4seIRFNhhebGEc/edit?usp=sharing)
+### [Задание В.9.2](https://docs.google.com/document/d/1eIm6cymlJFV5cG3sz3znqC_86WIZD5d_Rjvp8zQoes0/edit?usp=sharing)
+### [Задание В.10.2](https://docs.google.com/document/d/1aVnvJvSWp9EqUcW2KIsy-knCDgqUeFGUIBPmPdNJTpo/edit?usp=sharing)
